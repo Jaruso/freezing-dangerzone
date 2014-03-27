@@ -1,2 +1,2 @@
-This is for edjucation purpose only !
+This is for education purpose only !
 ===================
